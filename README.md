@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @HuyNQHE130759
+- 👀 I’m interested in IT
+- 🌱 I’m currently learning Project Management in Capstone Project
+- 💞️ I’m looking to collaborate on FPT University
+- 📫 Contact me : Huynqhe130759@fpt.edu.vn
